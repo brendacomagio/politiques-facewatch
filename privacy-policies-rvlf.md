@@ -1,8 +1,8 @@
-# Politique de Confidentialité pour Retour vers le futur Watch Face
+# Politique de Confidentialité pour Retour vers le futur Watch Face BTTF
 
 **Date d'entrée en vigueur :** 13 mai 2025
 
-Bienvenue sur Retour vers le futur Watch Face. Cette politique de confidentialité explique comment nous traitons les informations lorsque vous utilisez notre Cadran.
+Bienvenue sur Retour vers le futur Watch Face BTTF. Cette politique de confidentialité explique comment nous traitons les informations lorsque vous utilisez notre Cadran.
 
 **Collecte et Utilisation des Informations Personnelles**
 
